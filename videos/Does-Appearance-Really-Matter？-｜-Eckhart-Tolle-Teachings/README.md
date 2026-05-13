@@ -16,7 +16,7 @@
 |----------|-------|
 | **Video Name** | `Does-Appearance-Really-Matter？-｜-Eckhart-Tolle-Teachings` |
 | **Original Link** | [YouTube Video](https://www.youtube.com/watch?v=KmiNoCV-i84) |
-| **Total Size** | **1 file** (no split) - **18.74 MB** |
+| **Total Size** | **1 file** (no split) - **9.61 MB** |
 | **Quality** | **480** |
 | **Status** | **Complete (100%)** |
 | **Password Protected** | **NO** |
